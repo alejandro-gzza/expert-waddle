@@ -734,7 +734,7 @@
 
 
                                             <a style="color: #229954; font-size: 13px;"
-                                            href="https://www.forzagravitygym.com/download/Metodos_de_pago_2021.pdf">
+                                            href="https://www.forzagravitygym.com/download/Metodosdepago.pdf">
                                             
                                             WWW.FORZAGRAVITYGYM.COM/EPAYMENTS 
                                             </a>
